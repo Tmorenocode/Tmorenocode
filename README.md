@@ -1,5 +1,5 @@
-### Seja bem vindo! Eu sou o Tmoreno :D
-### Be welcome! i´m Tmoreno :D
+### Seja bem vindo! Eu sou o Taylan Novais
+### 
 ## Music 🖤
 
 
