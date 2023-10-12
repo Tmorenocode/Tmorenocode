@@ -1,4 +1,4 @@
-### Seja bem vindo! Eu sou o Taylan Novais
+### Seja bem vindo!
 ### 
 ## Music 🖤
 
